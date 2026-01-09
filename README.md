@@ -1,1 +1,1 @@
-![American Usa GIF](https://github.com/user-attachments/assets/16655799-9b29-41ac-b569-c39132db55f1)
+https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExOHByb3h0ZTRrMzcxcTM1Z3JkY3djYWdwamtvMXBzOGsza2Njdmp4cCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/5zG3EiekR1ZKFDtrMp/giphy.gif
